@@ -16,7 +16,7 @@
 
 💬 Ask me about **Dynamic 365 CRM, Plugin, Technical D365... or anything [here](https://www.linkedin.com/in/romiramadani/)**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
+⚡ Fun fact **I like learning something new**
 
  </div>
  
